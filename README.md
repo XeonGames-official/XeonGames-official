@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @XeonGames-official
 - 👀 I’m interested in Gaming and Football(Soccer).
 - 🌱 I’m currently learning how to play valorant
-- 😄 Pronouns: him
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I am 2 years old 😎
 
 <!---
